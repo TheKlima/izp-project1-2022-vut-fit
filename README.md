@@ -1,0 +1,1 @@
+# izp-project1-2022-vut-fit
